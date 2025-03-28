@@ -20,6 +20,7 @@
 
 我真心意識到了些什麼，我對人類造成的**「打擾」**突然有了深刻的認知。
 ![測試圖片](https://lab-storytelling-storage.twreporter.org/images/feb92f6a-de36-429c-bf22-75d6319e0a14.jpg)
+[![測試影片](https://img.youtube.com/vi/影片ID/0.jpg)](https://www.youtube.com/watch?v=影片ID)
 
 
 
